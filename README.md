@@ -1,2 +1,2 @@
 # WEFUN
-HI I'M ZHUXIN,STUDY IN HAERBIN
+这是一个没有内容的仓库
